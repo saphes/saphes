@@ -1,3 +1,3 @@
 ### hi im saphes
 
-i develop software for fun i guess but i also make music [here](https://soundcloud.com/nokkusuu)
+i write programs once in a while i think
